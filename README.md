@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rishikesh Chaudhari
-**A passionate Full Stack Devloper**
+**A passionate Full Stack Developer**
 
 Email Me 👉 ✉️ **rishichaudhari2003@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
